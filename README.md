@@ -240,4 +240,4 @@ Three Kingdoms: Destiny Heroes is available as a complete free version. All feat
 Embark on a thrilling journey through the Three Kingdoms era! Download **Three Kingdoms: Destiny Heroes** now and unleash your strategic prowess!
 
 ---
-**Last updated:** 2026-10-24 10:36:02 UTC
+**Last updated:** 2026-10-24 14:21:58 UTC
